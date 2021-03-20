@@ -2,23 +2,14 @@
 <title>;dalvmao永久发布页： | mmbbs.cc</title>
 <meta property="og:title" content="dalvmao永久发布页：" />
 <meta name="description" content="dalvmao- 最新网址 - 必须截图保存" />
-<meta property="og:description" content="dalvmao - 最新网址 - 必须截图保存" />
-{"@type":"WebSite","headline":"萌妹社区永久发布页：","url":"https://mmbbscc.github.io/mmbbs.cc/","description":"萌妹社区 - 最新网址 - 必须截图保存","name":"mmbbs.cc","@context":"https://schema.org"}</script>
+<meta property="og:description" content="dalvmao - 最新网址 - 必须截图保存" 
 <!-- End Jekyll SEO tag -->
 
     <meta name="viewport" content="width=device-width, initial-scale=1">
     <meta name="theme-color" content="#157878">
-    <link rel="stylesheet" href="/mmbbs.cc/assets/css/style.css?v=906374cbc206dc93924e4e6d9789059586e7b1d0">
   </head>
   <body>
-    <section class="page-header">
-      <h1 class="project-name">mmbbs.cc</h1>
-      <h2 class="project-tagline">萌妹社区 - 最新网址 - 必须截图保存</h2>
-      
-        <a href="https://github.com/mmbbscc/mmbbs.cc" class="btn">View on GitHub</a>
-      
-      
-    </section>
+  </section>
 <h3 id="httpswwwmmbbscc">*<a href="https://">https:</a></h3>
 <h3 id="dalvmao最近更新备用域名">dalvmao最近更新备用域名：</h3>
 <h3 id="httpswwwaa666me">*<a href="https://">https://</a></h3>
