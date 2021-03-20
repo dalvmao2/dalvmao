@@ -1,24 +1,10 @@
 <!DOCTYPE html>
-<title>;dalvmao永久发布页： | mmbbs.cc</title>
-<meta property="og:title" content="dalvmao永久发布页：" />
-<meta name="description" content="dalvmao- 最新网址 - 必须截图保存" />
-<meta property="og:description" content="dalvmao - 最新网址 - 必须截图保存" 
-<!-- End Jekyll SEO tag -->
-
-    <meta name="viewport" content="width=device-width, initial-scale=1">
-    <meta name="theme-color" content="#157878">
-  </head>
-  <body>
-  </section>
-<h3 id="httpswwwmmbbscc">*<a href="https://">https:</a></h3>
 <h3 id="dalvmao最近更新备用域名">dalvmao最近更新备用域名：</h3>
-<h3 id="httpswwwaa666me">*<a href="https://">https://</a></h3>
-<h3 id="httpswwwvv666me">*<a href="https://">https://</a></h3>
+<h3 id="https">*<a href="https://">https://</a></h3>
+<h3 id="https">*<a href="https://">https://</a></h3>
 
-<h3 id="httpswwwaa999me">*<a href="https://">https://</a></h3>
-<h3 id="httpswwwvv999me">*<a href="https://">https://</a></h3>
-
-<h3 id="httpswwwmmblcc">*<a href="https://">https://</a></h3>
+<h3 id="https">*<a href="https://">https://</a></h3>
+<h3 id="https">*<a href="https://">https://</a></h3>
 <h3 id="网址专用邮箱dalvmao1@com">网址专用邮箱：.com</h3>
 
 <p>邮箱是最有效的方法之一，必须记录保存好，避免无法找到最新地址</p>
