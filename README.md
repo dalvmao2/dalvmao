@@ -1,4 +1,3 @@
-<!DOCTYPE html>
 <h3 id="dalvmao最近更新备用域名">dalvmao最近更新备用域名：</h3>
 <h3 id="https">*<a href="https://">https://</a></h3>
 <h3 id="https">*<a href="https://">https://</a></h3>
