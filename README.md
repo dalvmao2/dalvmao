@@ -1,19 +1,8 @@
 <!DOCTYPE html>
-<html lang="en-US">
-  <head>
-    <meta charset="UTF-8">
-
-<!-- Begin Jekyll SEO tag v2.6.1 -->
-<title>萌妹社区永久发布页： | mmbbs.cc</title>
-<meta name="generator" content="Jekyll v3.9.0" />
-<meta property="og:title" content="萌妹社区永久发布页：" />
-<meta property="og:locale" content="en_US" />
-<meta name="description" content="萌妹社区 - 最新网址 - 必须截图保存" />
-<meta property="og:description" content="萌妹社区 - 最新网址 - 必须截图保存" />
-<link rel="canonical" href="https://mmbbscc.github.io/mmbbs.cc/" />
-<meta property="og:url" content="https://mmbbscc.github.io/mmbbs.cc/" />
-<meta property="og:site_name" content="mmbbs.cc" />
-<script type="application/ld+json">
+<title>;dalvmao永久发布页： | mmbbs.cc</title>
+<meta property="og:title" content="dalvmao永久发布页：" />
+<meta name="description" content="dalvmao- 最新网址 - 必须截图保存" />
+<meta property="og:description" content="dalvmao - 最新网址 - 必须截图保存" />
 {"@type":"WebSite","headline":"萌妹社区永久发布页：","url":"https://mmbbscc.github.io/mmbbs.cc/","description":"萌妹社区 - 最新网址 - 必须截图保存","name":"mmbbs.cc","@context":"https://schema.org"}</script>
 <!-- End Jekyll SEO tag -->
 
@@ -30,22 +19,16 @@
       
       
     </section>
+<h3 id="httpswwwmmbbscc">*<a href="https://">https:</a></h3>
+<h3 id="dalvmao最近更新备用域名">dalvmao最近更新备用域名：</h3>
+<h3 id="httpswwwaa666me">*<a href="https://">https://</a></h3>
+<h3 id="httpswwwvv666me">*<a href="https://">https://</a></h3>
 
-    <section class="main-content">
-      <h3 id="萌妹社区永久发布页">萌妹社区永久发布页：</h3>
-<h3 id="httpswwwmmbbscc">*<a href="https://www.mmbbs.cc">https://www.mmbbs.cc</a></h3>
-<h3 id="萌妹社区最近更新备用域名">萌妹社区最近更新备用域名：</h3>
-<h3 id="httpswwwaa666me">*<a href="https://www.aa666.me">https://www.aa666.me</a></h3>
-<h3 id="httpswwwvv666me">*<a href="https://www.vv666.me">https://www.vv666.me</a></h3>
+<h3 id="httpswwwaa999me">*<a href="https://">https://</a></h3>
+<h3 id="httpswwwvv999me">*<a href="https://">https://</a></h3>
 
-<h3 id="httpswwwaa999me">*<a href="https://www.aa999.me">https://www.aa999.me</a></h3>
-<h3 id="httpswwwvv999me">*<a href="https://www.vv999.me">https://www.vv999.me</a></h3>
-
-<h3 id="httpswwwmmblcc">*<a href="https://www.mmbl.cc">https://www.mmbl.cc</a></h3>
-
-<h3 id="telegram纸飞机mmbbscchttpstmemmbbscc">Telegram纸飞机：@mmbbscc(<a href="https://t.me/mmbbscc">https://t.me/mmbbscc</a>)</h3>
-
-<h3 id="网址专用邮箱mmbbsccgmailcom">网址专用邮箱：mmbbscc@gmail.com</h3>
+<h3 id="httpswwwmmblcc">*<a href="https://">https://</a></h3>
+<h3 id="网址专用邮箱dalvmao1@com">网址专用邮箱：.com</h3>
 
 <p>邮箱是最有效的方法之一，必须记录保存好，避免无法找到最新地址</p>
 
